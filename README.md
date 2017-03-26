@@ -1,3 +1,3 @@
 # work
 
-pervious work in salfny startup
+previous  work in salfny startup
